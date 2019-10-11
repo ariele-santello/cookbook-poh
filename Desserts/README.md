@@ -16,7 +16,7 @@
  About 24 ladyfingers (from one 7-ounce/200-gram package)
 1 to 2 ounces bittersweet chocolate, for shaving (optional)
 
-[tiramisu](https://static01.nyt.com/images/2017/04/05/dining/05COOKING-TIRAMISU1/05COOKING-TIRAMISU1-articleLarge.jpg)
+! [tiramisu](https://static01.nyt.com/images/2017/04/05/dining/05COOKING-TIRAMISU1/05COOKING-TIRAMISU1-articleLarge.jpg)
 
 ## **PREPARATION**
 Using an electric mixer in a medium bowl, whip together egg yolks and 1/4 cup/50 grams sugar until very pale yellow and about tripled in volume. A slight ribbon should fall from the beaters (or whisk attachment) when lifted from the bowl. Transfer mixture to a large bowl, wiping out the medium bowl used to whip the yolks and set aside.
