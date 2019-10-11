@@ -9,7 +9,7 @@
 ¾ cup heavy cream
 1 cup/227 grams mascarpone (8 ounces)
 
-## **FOR THE ASSEMBLY:**
+**FOR THE ASSEMBLY:**
 1 ¾ cups good espresso or very strong coffee
 2 tablespoons rum or cognac
 2 tablespoons unsweetened cocoa powder
